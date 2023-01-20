@@ -1,5 +1,5 @@
 # KTKGbot
 Kritika Global Gold Automation
 
-https://user-images.githubusercontent.com/15348766/213595313-6815560f-3d94-4b9d-b356-8e0f22adec29.mp4
+https://user-images.githubusercontent.com/15348766/213595838-ae00a80f-09dc-41da-92a6-2acf1bdbf45b.mp4
 
